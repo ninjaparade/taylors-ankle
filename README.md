@@ -2,7 +2,7 @@
 
 Poor Taylor and his ankle got badly damaged during an incident very similar, if not exactly like, the one depicted in this video.
 
-[How It Happened]: https://vine.co/v/iZb65XYuvDM
+[How It Happened]: (https://vine.co/v/iZb65XYuvDM)
 
 
 
