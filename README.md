@@ -1,3 +1,11 @@
+#History (How it happened)
+
+Poor Taylor and his ankle got badly damaged during an incident very similar, if not exactly like, the one depicted in this video.
+
+[How It Happened]: https://vine.co/v/iZb65XYuvDM
+
+
+
 # taylors-ankle
 It's badly broken and requires surgery
 
